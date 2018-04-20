@@ -1,3 +1,3 @@
 # Home
 
-Construting ... (1% ?)
+Constructing ... (1%)
